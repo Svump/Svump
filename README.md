@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Svump
 - 👀 I’m interested in browsing and getting inspired.
-- 🌱 I’m currently learning but have been around sonce the old Cobalt times just not here.
+- 🌱 I’m currently learning but have been around since the old CP/m - Basic & Cobalt times just not here.
 - 💞️ I’m looking to collaborate on nothing at the moment...
 - 📫 How to reach me: mail me.
 - 😄 Pronouns: ...
